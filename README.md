@@ -1,0 +1,2 @@
+# norsk
+Norsk for privatister.

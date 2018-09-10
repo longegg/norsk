@@ -1,4 +1,4 @@
-# Welcome to MkDocs
+# Velkommen til norsk for privatister!
 
 For full documentation visit [mkdocs.org](https://mkdocs.org).
 

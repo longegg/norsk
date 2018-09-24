@@ -60,5 +60,3 @@ Ordene må passe til den som bruker dem. Innholdet må også passe til den grupp
 - Å tolke betyr å finne fram til kjernen eller meningen i teksten. Analyser de enkelte delene.
 - Å vurdere betyr at du på faglig grunnlag skal finne verdien av noe.
 - Å ta utgangspunkt i betyr at du skal bruke oppgitte tekster eller lærestoff for å si noe om egen oppfatninger om et bestemt tema.
-
-

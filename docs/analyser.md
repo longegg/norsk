@@ -21,4 +21,9 @@ Annonsen spiller sterkt på leserens medfølelse. Siden målet med annonsen er �
 
 Det er ingen informasjon om når annonsen har vært på trykk men annonser som denne er like relevante uansett når de trykkes.
 
-Annonsen kan sier å være rett på sak. Typisk for slike annonser er at språket er saklig og preget av faktasetninger. Teksten avsluttes med en oppfordring til å bli fadder og denne setning er i fet skrift og med utropstegn. 
+Annonsen kan sier å være rett på sak. Typisk for slike annonser er at språket er saklig og preget av faktasetninger. Teksten avsluttes med en oppfordring til å bli fadder og denne setning er i fet skrift og med utropstegn.
+
+## Analyse av "Kvinnene knuser oss" (NP30D)
+
+[https://www.dagbladet.no/kultur/kvinnene-knuser-oss/63189727]
+

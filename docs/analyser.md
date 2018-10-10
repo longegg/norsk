@@ -27,3 +27,17 @@ Annonsen kan sier å være rett på sak. Typisk for slike annonser er at språke
 
 [https://www.dagbladet.no/kultur/kvinnene-knuser-oss/63189727]
 
+Teksten "Kvinnene knuser oss" ble trykket i Dagbladet 12. oktober 2012. Den er skrevet av Stein Aabø, som er journalist og kommentator hos Dagbladet.
+
+Aabø snakker på vegne av mennene i samfunnet. Og da spesielt de mennene som detter litt utenfor og ikke passer inn i dagens "feminiserte" skolesystem. Kvinnene tar mer over i samfunnet, og kvinnelige verdier er større representert i følge Aabø. Han nevner en bok som er blitt anmeldt under tittelen "Why Men Fail". Det er poenget som blir tatt frem her. Menn feiler og kvinner tar over stafettpinnen i samfunnet.
+
+Allerede i tittelen gjør forfatteren poenget sitt tydelig og vi forstår budskapet teksten prøver å gi. Hvert hovedpoeng i teksten er utmerket med at en del av den første setningen er i fet. 
+
+Etos:
+Siden Stein Aabø er en mann har han sterk etos på den måten at han vet selv hvordan det er å være en mann i dagens samfunn. På den andre siden blir hans etos svekket av at han er upartisk.
+
+Patos:
+
+Kairos:
+
+Aptum:
